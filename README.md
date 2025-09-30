@@ -1,1 +1,0 @@
-# Ganharei-a-faixa-roxa-
